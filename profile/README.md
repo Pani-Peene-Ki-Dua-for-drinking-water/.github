@@ -39,8 +39,7 @@ Reciting these duas offers numerous benefits:
 *   **Spiritual Connection:** It strengthens our connection with Allah.
 *   **Following the Sunnah:** It allows us to emulate the Prophet Muhammad (PBUH).
 
-[pani peene ki dua](https://surahyasin.org/pani-peene-ki-dua)
-
+if you are interested watching articles please visit our New post [Watu Izzu Mantasha Watu Zillu Mantasha in Urdu Translation & Tafsir](https://everydayislam5.wordpress.com/2025/10/18/watu-izzu-mantasha-watu-zillu-mantasha-in-urdu-translation-tafsir/)
 
 ** (FAQs):**
 
